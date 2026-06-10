@@ -1,4 +1,4 @@
-# 
+# Premium AI Sentiment Analysis for Social Media extensiones. Con toma de decisiones automatizada y IA en la nube — optimizado para el máximo rendimiento.
 
 
 
